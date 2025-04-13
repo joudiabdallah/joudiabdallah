@@ -30,16 +30,16 @@ Welcome to my GitHub profile! I'm a PhD student in Statistics, passionate about 
  📫 How to Reach Me
 - 📧 Email: judyabh98@gmail.com  
 - 💬 LinkedIn:  www.linkedin.com/in/joudi-abdallah-30095718a
-- 🐦 Twitter/X: x.com/JoudiSimulates  
+- 🐦 Twitter/X: www.x.com/JoudiSimulates  
 
 ---
 
- 😄 Pronouns
+ 😄 Pronouns: 
 She/Her
 
 ---
 
-⚡ Fun Fact
+⚡ 
 My research has more dimensions than my coffee orders — and I drink a lot of coffee. ☕📐
 
 ---
