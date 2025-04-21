@@ -30,7 +30,6 @@ Welcome to my GitHub profile! I'm a PhD student in Statistics, passionate about 
  📫 How to Reach Me
 - 📧 Email: judyabh98@gmail.com  
 - 💬 LinkedIn:  www.linkedin.com/in/joudi-abdallah-30095718a
-- 🌍 X: www.x.com/joudiabdallah%5F
 
 ---
 
